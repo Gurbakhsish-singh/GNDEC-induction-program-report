@@ -3,9 +3,9 @@
 # Day 1
 My first day at GNDEC started with all the CSE and IT students assembling in the Gurudwara, where we all seek blessing from god for our college life. After that we came to auditorium where the atmosphere was calm, and the stage was beautifully decorated. After waiting for about 30 minutes, the host invited our principal sir, Dr. Sehijpal Singh. His lecture made us feel like we were already a part of the GNDEC family.
 
-Hod of appllied science, Harpreet mam motivated us to make the best use of this platform. The NSET Director introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds. she highlighted the first 36 years, which were dedicated to establishing the institute.
+Hod of appllied science, Harpreet mam motivated us to make the best use of this platform,introduced us to the illustrious history of this institution, emphasizing its 70 years of shaping brilliant minds. she highlighted the first 36 years, which were dedicated to establishing the institute.
 
-Next, we entered the room where our mentors tell us about our department and the professors who will teach us for 4 years. We got so much knowledge about our college and the department.
+Next, we entered the room where our mentors tell us about our department and the professors who will teach us for next 4 years. We got so much knowledge about our college and the department.
 
 # Day 2
 ## English and Maths Proficiency Test
