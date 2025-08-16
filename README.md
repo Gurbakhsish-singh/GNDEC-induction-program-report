@@ -117,7 +117,7 @@ Today was a perfect blend of academia and hands-on learning. The lectures provid
 
 Stay tuned for more updates as our induction program continues!
 
-# The Final Day of Induction:
+# Day 9:
 In auditorium , The very first lecture was of Dr. Parminder singh , Dean of student welfare. He elaborated us about different sectors of college like sports sector, cultural committee and also told us about the different scholarships which could help the students financially. He told us about the anti-ragging committee and so many useful and inmportant things regarding college.
 
 Then we had a lecture by Dr. Amit Kamra sir, He told about the digital marketing club was was newly lauched, He told us about the improvements, this club bring to us and the opportunities that could be very helpful to enhance ourselves. He gave us some days to make a documentary on college and to compete with others and to enhance ourselves.
